@@ -1,1 +1,0 @@
-# ar_fuka_testj33a9h
